@@ -11,3 +11,11 @@ Enfim ...
 Por hora, todos os posts são para viagem em casal, e o porque disso é que eu viajo com minha esposa e quando pegamos dicas com solteiros sobre os locais que visitamos, geralmente se resume a passeios de solteiros, porque a experiência que tiveram foram como solteiro. Por exemplo, quando fomos a Las Vegas, TODOS os solteiros que pegamos dicas falavam de balada X, Y ou Z, mas, nenhum deles falou sobre a Freemont Las Vegas, onde a experiência valeu MUITO a pena (mas no post sobre Vegas falaremos mais sobre).
 
 Bom, vamos ao que interessa.
+
+Antes de iniciar sua pesquisa eu venho adotando uma prática muito nerd (pois trabalho com tecnologia) chamada de History Board, ou quadro de histórias, que basicamente funciona como um quadro físico ou eletrônico (trello.com) onde você pode criar um quadro com o título "Minha Viagem" e colocar 4 colunas que são básicas: "A Fazer", "Fazendo", "Impedimento" e "Concluído", e colocar cards para cara coluna que será uma tarefa que você e seu companheiro(a) vão executar para que a viagem possa ser um sucesso. A estrutura deverá ficar mais ou menos assim: 
+
+| A fazer   | Fazendo   | Impedimento     | Concluído            |
+|           | Passagens |			      |	                     |
+| Hoteis	|           |                 |                      |
+|           |           | Verificar Folga |                      |
+|           |           |                 | Definição do destino |   
