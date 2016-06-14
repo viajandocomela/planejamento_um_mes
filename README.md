@@ -14,8 +14,5 @@ Bom, vamos ao que interessa.
 
 Antes de iniciar sua pesquisa eu venho adotando uma prática muito nerd (pois trabalho com tecnologia) chamada de History Board, ou quadro de histórias, que basicamente funciona como um quadro físico ou eletrônico (trello.com) onde você pode criar um quadro com o título "Minha Viagem" e colocar 4 colunas que são básicas: "A Fazer", "Fazendo", "Impedimento" e "Concluído", e colocar cards para cara coluna que será uma tarefa que você e seu companheiro(a) vão executar para que a viagem possa ser um sucesso. A estrutura deverá ficar mais ou menos assim: 
 
-| A fazer   | Fazendo   | Impedimento     | Concluído            |
-|           | Passagens |			      |	                     |
-| Hoteis	|           |                 |                      |
-|           |           | Verificar Folga |                      |
-|           |           |                 | Definição do destino |   
+| A fazer | Fazendo | Impedimento | Concluído |<br>
+
