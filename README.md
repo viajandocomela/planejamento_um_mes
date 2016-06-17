@@ -16,3 +16,58 @@ Antes de iniciar sua pesquisa eu venho adotando uma prática muito nerd (pois tr
 
 | A fazer | Fazendo | Impedimento | Concluído |<br>
 
+O que precisa ser pensado em primeiro lugar é o local que você vai viajar .. então com a idéia fixa vamos trabalhar da seguinte maneira: 
+
+Destino: Chile (minha experiência)
+
+Dias 1, 2 e 3: Consultas nos portais básicos (decolar.com, americanas.com.br, etc), sem compromisso algum, busque apenas Passagens de Ida e Volta e mescle sempre as datas (caso tenha essa disponibilidade). Um site legal para se ver é o https://www.google.com.br/flights enfim, olhe sempre as datas. 
+
+Dicas valiosas: 
+1. Olhe sempre em uma aba privada seu navegador;
+2. Achou uma oferta legal nesses sites, vá até o site da companhia aerea e veja por lá, você pode se surpreender;
+3. Buscar quais companhias voam para o Destino e stalkear até achar a oferta. 
+4. Passagens de avião são iguais ao dolar, achou a cotação que caiba no bolso, compre, não espere o outro dia pra ver se ta OK os preços.
+
+No nosso caso, fechamos com a LATAM, mas tem aerolineas argentinas, GOL e olhar em cada uma é melhor.
+
+Por fim, fechar as passagens de ida e volta no site da cia. Fechamos com a LATAM pra dois com IDA e Volta + Taxas por R$1200,00.
+
+Dias 5 a 8: Consultar nos portais básicos (hoteis.com, trivago, airbnb*, expedia) os hoteis com as diárias que você precisa. Eu prefiro trabalhar sempre com o hoteis.com. 
+
+Dicas valiosas:
+
+1. Olhe sempre em uma aba privada seu navegador;
+2. Achou a oferta, entre em contato com o hotel por email, de repente você negocia algo legal;
+3. Hoteis também são parecidos com o dolar, ou seja, vale a mesma dica das passagens, achou a cotação que caiba no bolso, compre, não espere o outro dia pra ver se ta OK os preços.
+
+Fechar o hotel =).
+
+Dias 9 até 15: Pesquisar o que se dar pra fazer em X dias na cidade ou país, principais pontos turísticos, se há a necessidade de carro, se da pra utilizar transporte público, se da pra andar e passear a pé, se é ou não perigoso no período noturno.
+
+Dica valiosa: Nesse período de 6 dias caso queiram fechar algum passeio pela internet é super recomendado, mas busque antes saber sobre o que você está comprando.
+
+Dias 15 até 30: Continuar pesquisando sobre o local, pegando dicas, mas agora com a intenção real de fechar com muita antecedências tudo, organizar o máximo de coisas possível.
+
+No Chile, mais precisamente em Santiago, seguimos esse roteiro, mas isso não quer dizer que tudo deu certo, mas o que fechamos foi:
+
+Sexta dia 03:
+Chegada as 12:00 no Aeroporto;
+Chegada as 14:00 no Hotel;
+Pontos turísticos de Santiago (principais) até as 18:00;
+Subir no Cerro de San Cristobal até as 20:00;
+Jantar no Como Agua para Chocolate até as 22:00;
+Estar no Hotel as 23:00;
+
+Sábado dia 04:
+Levantar as 07:00 e tomar banho e café;
+Empresa Turistik (SUPER RECOMENDO) chega para passeio no Vale Nevado as 09:00;
+Volta do Passeio as 14:30;
+No caso dessa empresa, ela te da opção de deixar próximo ao Costanera, e o passeio lá vale a pena por todo o bairro e fica do lado de N estações de metro (que por sinal é o melhor meio de transporte lá no Chile) até as 19:00;
+Ir no Terraza Bellavista;
+Jantar em algum bar no bairro Providencia ou tomar algum lanche em algum lugar, comer uma Empanada;
+
+Domingo dia 05:
+Levantar as 07:00 e tomar banho e café;
+Empresa Turistik (SUPER RECOMENDO) chega para passeio na venícola Concha Y Toro as 09:00;
+Volta do Passeio as 12:00;
+Caso tenha tempo, comprar souvenirs próximo a estação Santa Lucia (linha vermelha);
