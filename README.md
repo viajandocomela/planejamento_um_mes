@@ -71,3 +71,7 @@ Levantar as 07:00 e tomar banho e café;
 Empresa Turistik (SUPER RECOMENDO) chega para passeio na venícola Concha Y Toro as 09:00;
 Volta do Passeio as 12:00;
 Caso tenha tempo, comprar souvenirs próximo a estação Santa Lucia (linha vermelha);
+No nosso caso, voltamos pro Aeroporto as 15:00;
+Embarque as 17:50;
+
+
