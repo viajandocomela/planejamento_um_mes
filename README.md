@@ -63,7 +63,7 @@ Levantar as 07:00 e tomar banho e café;
 Empresa Turistik (SUPER RECOMENDO) chega para passeio no Vale Nevado as 09:00;
 Volta do Passeio as 14:30;
 No caso dessa empresa, ela te da opção de deixar próximo ao Costanera, e o passeio lá vale a pena por todo o bairro e fica do lado de N estações de metro (que por sinal é o melhor meio de transporte lá no Chile) até as 19:00;
-Ir no Terraza Bellavista;
+Ir no Cerro Santa Lucia;
 Jantar em algum bar no bairro Providencia ou tomar algum lanche em algum lugar, comer uma Empanada;
 
 Domingo dia 05:
