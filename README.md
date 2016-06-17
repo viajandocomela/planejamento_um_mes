@@ -74,4 +74,6 @@ Caso tenha tempo, comprar souvenirs próximo a estação Santa Lucia (linha verm
 No nosso caso, voltamos pro Aeroporto as 15:00;
 Embarque as 17:50;
 
+Bom, caso queiram mais dicas do Chile, mandem email para viajandocomela@gmail.com
 
+Até o próximo.
